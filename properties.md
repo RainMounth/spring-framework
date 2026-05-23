@@ -7,3 +7,15 @@
 5:接触后留下的痕迹。手脚腰耳朵脸上/脖子/衣服上全身包括裤腰带处衣服最下面的粉底液口红头发香水，内裤上的液体痕迹  
 6:裤子衣服手上脚上里的东西  
 7:说过的话例如电影吃饭话题食物尤其是你们是否说过做过
+
+
+13282148776 Cf.trywxwqq61 
+账号密码 1 479 539 71819 Cf123456
+先锋技术服务
+ID服务器： gn71547.279888.xyz
+中继服务器： gn71547.279888.xyz
+API服务器：不要输入
+Key： MpB6chud4SstUgSW
+下载和安装设置教程：https://www.yuque.com/ssnn/rd1 ===============
+
+=0nIXN1ZVR3cTRDZ1h2Y2IEcNJiOikXZrJCLiIiOikGchJCLioXe45CO4gTO3IjL3QTNxcjbnJiOikXYsVmciwiI6lHeugDO4kzNy4yN0UTM342ZiojI0N3boJye
